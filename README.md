@@ -1,0 +1,1 @@
+# Info-dump-LIGO-USGS-and-Earth-s-standing-wave-frequency
